@@ -1,0 +1,1 @@
+# semestralni_prace_kvas02_tema_graficke_editory_rastrova_grafika
